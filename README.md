@@ -1,1 +1,0 @@
-# GamerLp47-s-projects
